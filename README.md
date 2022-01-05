@@ -1,2 +1,0 @@
-# Namastay
-Namastay Duniya
